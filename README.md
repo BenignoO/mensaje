@@ -1,1 +1,1 @@
-# novia
+# dedicatoria
